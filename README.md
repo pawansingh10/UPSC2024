@@ -43,6 +43,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![KabylieKabyleGIF](https://github.com/pawansingh10/UPSC2024/assets/47448422/dde729a3-9458-4e59-aa0b-0a8d4a41356a)
+
 
 ©️copyright Reserved to [Pawan Singh](https://github.com/pawansingh10)
