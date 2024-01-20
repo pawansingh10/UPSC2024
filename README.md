@@ -43,6 +43,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+- ![IndiaIndependenceDayGIF](https://github.com/pawansingh10/UPSC2024/assets/47448422/3327d3b6-d844-4a30-88e1-d4e4cf4bbc97)
+- ![InsomniaNepalGIF](https://github.com/pawansingh10/UPSC2024/assets/47448422/d71f51c0-cedd-4138-acc2-91f7114e3e9d)
 
 
 ©️copyright Reserved to [Pawan Singh](https://github.com/pawansingh10)
